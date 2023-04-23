@@ -19,6 +19,7 @@ Il y a également de nombreux villages de pêcheurs sur l'île d'Oléron, où Es
 En tant que pêcheur, Esteban peut vivre dans un petit village ou une ville côtière sur l'île, avec un accès facile à la mer pour pêcher. Il peut également avoir sa propre maison ou vivre dans une petite communauté de maisons de pêcheurs traditionnelles.
 
 ## Chapitre 2
+
 Esteban avait toujours été un pêcheur passionné et avait passé la majeure partie de sa vie à naviguer sur la mer autour de l'île d'Oléron. Mais ces dernières années, il avait remarqué que les prises étaient devenues plus maigres et que les conditions de pêche étaient de plus en plus difficiles.
 
 Il avait commencé à ressentir une sorte de malaise et une insatisfaction grandissante. Il savait que quelque chose devait changer s'il voulait continuer à vivre de la mer.
@@ -36,3 +37,20 @@ Mais alors qu'il se rapprochait de sa destination, une tempête a éclaté, la p
 Finalement, après des heures de lutte contre la tempête, Esteban a réussi à se sortir des vagues et à retrouver un calme relatif. Épuisé et secoué, il a regardé autour de lui et a vu une île en vue, la terre ferme qu'il cherchait depuis des jours.
 
 Il a navigué vers l'île, reconnaissant d'avoir survécu à la tempête et excité de découvrir ce que cette nouvelle terre pouvait lui offrir en termes de pêche et d'opportunités. Il avait pris une décision difficile, mais il savait que c'était la bonne pour lui et sa passion pour la mer.
+
+## Chapitre 3
+Esteban avait parcouru des kilomètres en mer avant d'arriver à une nouvelle île. Il n'avait pas beaucoup d'informations sur cette île, mais il avait entendu dire qu'un homme y avait été vu pour la dernière fois. Cet homme, appelé Mathis, était un ancien marin qui avait mystérieusement disparu il y a plusieurs années.
+
+Esteban avait été envoyé à la recherche de Mathis par les habitants d'Oléron, qui avaient entendu dire qu'il se trouvait peut-être sur cette île. Ils avaient besoin de son expertise pour réparer un bateau qui avait été endommagé lors d'une tempête.
+
+Après avoir exploré l'île pendant plusieurs jours, Esteban avait finalement trouvé Mathis. Il était caché dans une petite cabane, visiblement en train de se cacher des autres habitants de l'île.
+
+Au début, Mathis était réticent à parler à Esteban. Il avait l'air nerveux et méfiant. Mais Esteban avait su gagner sa confiance en lui parlant de sa propre expérience en mer et de la vie sur l'île d'Oléron. Finalement, Mathis avait accepté de revenir avec Esteban à Oléron.
+
+Le voyage de retour avait été long et difficile, car le bateau avait encore subi des dégâts en mer. Mais Esteban avait réussi à le réparer avec l'aide de Mathis, qui avait une grande expérience en matière de navigation.
+
+Lorsqu'ils étaient enfin revenus à Oléron, Esteban avait présenté Mathis aux habitants du village. Les gens étaient heureux de le revoir après toutes ces années. Ils avaient organisé une fête en son honneur, et Mathis avait raconté des histoires de ses aventures en mer.
+
+Au fil des jours, Mathis était devenu un membre respecté de la communauté d'Oléron. Il avait partagé ses connaissances avec les jeunes marins de la ville, et avait aidé à réparer de nombreux bateaux.
+
+Esteban avait été fier de lui-même d'avoir réussi à trouver Mathis et de l'avoir ramené à Oléron. Il avait également réalisé que sa mission était bien plus que de simplement réparer un bateau. Il avait aidé à ramener un membre précieux de la communauté d'Oléron, et avait aidé à renforcer les liens entre les habitants de l'île.
